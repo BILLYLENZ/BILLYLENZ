@@ -10,7 +10,7 @@ i dont use tonetags often (mainly just /p) bt if you need them i will use them f
 
 ur probably ehre from ponytown so umm heres sum info i guess!!!!!!
 - i dont like being covered but if u coverme i mostly wont be mean about it unless im in a bad mood
-- i hide skins of kanade otonokoji/iroha nijiue from sdra2, mitsuhiro higa from dra, victor grantz from idv and razor from genshin if i hid you then this is probably why 
+- i hide skins of kanade otonokoji/iroha nijiue from sdra2, mitsuhiro higa from dra, victor grantz from idv, razor from genshin and eyestrain or spder skins if i hid you then this is probably why 
 - proships dni you gross please kys
 - my main interests are slasher films, dead by daylight and undertale so if u like those too feel free to interact i luv u
 
