@@ -1,8 +1,8 @@
-hiii im tiffany or outer call me whchever
+hiii im tiffany or kyle call me whchever
 
 i go by he/she only if u use they/them fir me i will be sad
 
-im asian and a minor nd im a nonbinary lesbian so if i make homophobic jokes or lesbophobic jokes i dont eman it lol
+im asian and a minor nd im a genderfluid lesbian so if i make homophobic jokes or lesbophobic jokes i dont eman it lol
 
 i also make kys/kms/die jokes cuz theyre funny dont take me seriously
 
