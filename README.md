@@ -1,19 +1,16 @@
-hiii im tiffany or kyle call me whchever
+IM TIFFANY!!!!!!! OR KYLE
 
-i go by he/she only if u use they/them fir me i will be sad
+i go by he/she *evil giggle
 
-im asian and a minor nd im a genderfluid lesbian so if i make homophobic jokes or lesbophobic jokes i dont eman it lol
+genderlfuid lesbian !!!! IM A MINOR TOO
 
-i also make kys/kms/die jokes cuz theyre funny dont take me seriously
+i m asian aswell
 
-i dont use tonetags often (mainly just /p) bt if you need them i will use them for you^_^ <3
+my mian intrsts right now r final destination, slasher films, heathers and more
 
-ur probably ehre from ponytown so umm heres sum info i guess!!!!!!
-- i dont like being covered but if u coverme i mostly wont be mean about it unless im in a bad mood
-- i hide skins of kanade otonokoji/iroha nijiue from sdra2, mitsuhiro higa from dra, victor grantz from idv, razor from genshin and eyestrain or spder skins if i hid you then this is probably why 
-- proships dni you gross please kys
-- my main interests are slasher films, dead by daylight and undertale so if u like those too feel free to interact i luv u
+i dont hide often but if i hate you ill hide you for 24 hrs/30 minutes depending on my mood
 
+OK BYEEEE!!!!!!!!!!!!!!!! READ THIS FOR MY DNI http://txti.es/teruyaotori
 <!--
 **BILLYLENZ/BILLYLENZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
