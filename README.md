@@ -3,6 +3,8 @@ hai im tiffany or kyle, pronouns he/she
 i dont hide much but i will if i find you annoying, or ur in a skin of kanade otonokoji, iroha nijiue, mitsuhiro higa, or victor grantz
 
 pls int final destination fans im fixating rlly bad on it rn
+
+i dont like beign covered if you cover me i will scream and cry and throw up unless ur a friend
 <!--
 **BILLYLENZ/BILLYLENZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
